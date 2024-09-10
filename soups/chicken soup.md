@@ -1,0 +1,16 @@
+# Chicken soup recipe
+
+
+## Ingredients
+
+- **1 lb** (450g) Chicken, cleaned and sliced
+- **2 tablespoons** olive oil or unsalted butter
+- **1** medium onion, diced
+- **2** garlic cloves, minced
+- **1 teaspoon** fresh thyme leaves (or ½ teaspoon dried thyme)
+- **4 cups** (about 950ml) vegetable or chicken broth
+- **1 cup** (240ml) heavy cream or coconut milk for a vegan option
+- **Salt and black pepper** to taste
+- **2 tablespoons** all-purpose flour (optional, for thickening)
+- **Fresh parsley** chopped, for garnish
+- **Crusty bread** for serving
